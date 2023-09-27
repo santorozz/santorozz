@@ -9,4 +9,6 @@ luiz.lara.teixeira@Escola.pr.gov.br
 
 @santoro.av
 
+"Sejamos como os girassóis. Indo sempre em direção à luz."
+
 ![sejamos como os girassois, sempre indo em direção a luz](https://media.tenor.com/flo46AolzK4AAAAd/good-night.gif)
